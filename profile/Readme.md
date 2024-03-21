@@ -1,6 +1,6 @@
 ## Hey, is this mic working? 🎤
 
-![Illustration of a mountain to show and emphasizes high growth in the future](https://is3.cloudhost.id/eventnimz-jktstrg/eventnimz-jktstrg/19/haf-school-stuff/anime-park.jpeg)
+![Illustration of a mountain to show and emphasizes high growth in the future](https://is3.cloudhost.id/eventnimz-jktstrg/eventnimz-jktstrg/19/haf-school-stuff/anime-park.jpg)
 
 Woah, where are we? In GitHub are we? Oh, hii there! _ekhem_, let us introduce ourselves. We're Cantor, an Indonesian startup that aims for growth and utility-first, profit last mindset. Been here since 13th of February 2024', and since then we have **created meaningful integration within ourselves.** We're **proud** to be here, and joining the people-first community!
 
