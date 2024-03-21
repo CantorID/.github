@@ -32,9 +32,8 @@ Let us know if you have any suggestions 🙇‍♂️. Oh, and by the way, we're
 	</ul>
 </details>
 
----
 
-<!--
+
 Made with 🖤
 🙇‍♂️🎤⬇️
--->>
+
